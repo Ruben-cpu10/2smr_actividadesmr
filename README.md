@@ -1,1 +1,1 @@
-# 2smr_actividadessmr
+# 2smr_actividadesmr
